@@ -1,0 +1,1 @@
+Hello, this is Cookie Clicker Pro, with cheats and stuff cookie clicker becomes easy! Not the best cheats but a project for me (credits to https://cookieclicker.fandom.com/wiki/Cheating) because i cant code. So most code is from there.
